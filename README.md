@@ -20,4 +20,4 @@
 所有资源均通过高质量种子源稳定分发，失效链接每日巡检更新，保障看片体验持续流畅。真正做到看片不求人，永久免费。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/68045 ）</span>
